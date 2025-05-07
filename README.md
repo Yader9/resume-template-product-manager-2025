@@ -1,4 +1,4 @@
-# ✅ Free Product Manager Resume Template (ATS-Friendly) [2024]
+# ✅ Free Product Manager Resume Template (ATS-Friendly) [2025]
 
 Looking for a clean, ATS-optimized resume to apply for Product Manager roles?
 
@@ -10,11 +10,9 @@ This free template was designed to:
 ---
 
 ## 🔧 How to Use It
-1. Open the template here:  
-   👉 **[Google Docs Resume Template](https://docs.google.com/document/d/e/2PACX-1vT-GtBbpl90q0zfyrFcdjnlymbrxAS7AF9SSXPw-Dh_GEpfHXZUi159gC-VnoIDsA/pub)**  
-2. Click **File → Make a copy** to save it to your Google Drive  
-3. Replace placeholder text with your own experience  
-4. Export it as a PDF when you're done
+1. 👉 **[Click here to make a copy of the template](https://docs.google.com/document/d/13S_E9TpTDHziAWH_HzVzPKlUJClE7BpO/copy)**
+2. Replace placeholder text with your own experience  
+3. Export it as a PDF when you're done
 
 ---
 
